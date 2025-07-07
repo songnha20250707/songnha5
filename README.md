@@ -22,4 +22,4 @@
 
 本站每天都会更新最新的日本AV资源，让您不再错过任何一部精彩作品。我们致力于为您提供一个稳定、安全、快速的免费观看平台，让您尽情享受高质量的免费观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/songnha20250707/songnha5 ）</span>
